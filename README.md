@@ -1,0 +1,1 @@
+Kristers Greidiņš - Pašvērtējums: slikts, neprotu risināt uzdevumus.
